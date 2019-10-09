@@ -1,6 +1,6 @@
-# About Mr. Chichga
+# About Mr. Chicha
 
-- **Name:** Mr. Clifford
+- **Name:** Darius Chicha
 - **Graduated from BHS:** 2020
 - **Graduated from  middle school:** 2016
 
